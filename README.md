@@ -1,1 +1,1 @@
-# l-tr-nh-6-th-ng-full
+6 tháng chăm chỉ
